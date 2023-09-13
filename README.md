@@ -1,4 +1,4 @@
-##Bemo vindos ao meu perfil
+##Bem vindos ao meu perfil
 
 Meu nome é Luiz Matheus Piasentin
 
